@@ -90,7 +90,7 @@ My unique combination of enterprise integration expertise and AI/ML knowledge po
 
 Building my network in AI architecture. Let's connect!
 
-- **LinkedIn**: [linkedin.com/in/shravanthi-bhaskara](https://www.linkedin.com/in/shravanthi-bhaskara/)
+- **LinkedIn**: [linkedin.com/in/shravanthi-bhaskara](https://www.linkedin.com/in/sravanthi-b-7481b18b/)
 - **GitHub**: [github.com/ShravanthiB](https://github.com/ShravanthiB)
 - **Email**: [Your professional email]
 
